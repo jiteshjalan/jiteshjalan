@@ -1,4 +1,4 @@
-# Jitesh Jalan — Growth Product Manager & AI Builder
+# Jitesh Jalan — Product Manager & AI Builder
 
 **Growth PM** at [Uniqode](https://uniqode.com) (Accel-backed) · Bengaluru  
 Scaled across 50,000+ customers · Promoted twice in under 3 years
